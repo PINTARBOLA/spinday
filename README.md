@@ -1,0 +1,2 @@
+# spinday
+PINTARBOLA SPIN
